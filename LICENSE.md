@@ -1,4 +1,4 @@
-
+vip Plugin for Adobe Illustrator for macOS - layer styles and gradient maps is the best Adobe Illustrator for macOS plugin, featuring layer styles and gradient maps. Safe,
 
 
 
